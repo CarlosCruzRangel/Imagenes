@@ -24,3 +24,8 @@ Para ICC
 ![Captura desde 2023-02-21 10-46-29](https://user-images.githubusercontent.com/79823316/220414591-b0024a4b-d174-45d0-92ed-b120020f6873.png)
 ![Captura desde 2023-02-21 10-47-19](https://user-images.githubusercontent.com/79823316/220414847-91091515-0f55-4edc-8937-6e0b8e8fece8.png)
 ![para icc](https://user-images.githubusercontent.com/79823316/220416533-cd27c5c0-ac45-4fbf-a534-e0f8104c31d4.png)
+
+![g316](https://user-images.githubusercontent.com/79823316/220524234-d6faf120-0654-426d-bd69-6f7c3e8c74f6.png)
+![g2066](https://user-images.githubusercontent.com/79823316/220525076-34f1e2c8-7f4f-4091-9b28-d1ff16c9ea93.png)
+
+
