@@ -30,4 +30,5 @@ Para ICC
 
 ![kanban](https://user-images.githubusercontent.com/79823316/221398072-2f6160da-f1b3-40b2-8dbe-e4a5ea9fc1b1.png)
 ![pexels-daniel-absi-952670](https://user-images.githubusercontent.com/79823316/222338264-d7a14f7d-bbed-4959-86d0-5c099824332d.jpg)
+![pexels-john-lee-7527323](https://user-images.githubusercontent.com/79823316/222338957-7e081ae2-3fa8-4200-8bd3-ec58e1e7e74c.jpg)
 
