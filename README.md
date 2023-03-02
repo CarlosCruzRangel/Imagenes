@@ -29,4 +29,5 @@ Para ICC
 ![g2066](https://user-images.githubusercontent.com/79823316/220525076-34f1e2c8-7f4f-4091-9b28-d1ff16c9ea93.png)
 
 ![kanban](https://user-images.githubusercontent.com/79823316/221398072-2f6160da-f1b3-40b2-8dbe-e4a5ea9fc1b1.png)
+![pexels-daniel-absi-952670](https://user-images.githubusercontent.com/79823316/222338264-d7a14f7d-bbed-4959-86d0-5c099824332d.jpg)
 
