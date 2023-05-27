@@ -40,3 +40,6 @@ Para ICC
 ![deleece-cook-5MC5W-ffsks-unsplash](https://user-images.githubusercontent.com/79823316/222428633-5f6dcccc-a7b0-40d0-bc58-75607f15c721.jpg)
 ![Captura de pantalla 2023-05-02 065226](https://user-images.githubusercontent.com/79823316/235671609-fcd3a845-7544-4d9a-8d86-24f6981ab853.png)
 
+![CapturaDeUsoDescragaZip](https://github.com/CarlosCruzRangel/Imagenes/assets/79823316/7ec08b9d-413d-40de-b9d3-ed6056ce8d3c)
+
+
