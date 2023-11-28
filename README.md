@@ -50,6 +50,7 @@ Para ICC
 ![Captura de pantalla 2023-11-28 110526](https://github.com/CarlosCruzRangel/Imagenes/assets/79823316/6e711eb0-2969-4462-90fd-d4ce335e4f85)
 
 
+![Captura de pantalla 2023-11-28 110924](https://github.com/CarlosCruzRangel/Imagenes/assets/79823316/9240cdb4-dab4-4907-8cd4-1adc00a5a04e)
 
 
 
